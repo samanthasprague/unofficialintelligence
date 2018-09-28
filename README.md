@@ -7,5 +7,6 @@ Samantha Sprague
 samanthasprague@gmail.com
 
 David Josephs 
+josephsd@smu.edu
 
 CarsonDrake
